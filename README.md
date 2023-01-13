@@ -16,6 +16,8 @@ I am a person who really values friendship. My friends have careers in various f
 
 I was late to be there, but I believe it's never too late to learn as long as there is a desire.
 
+I hope my brother, Lindo, will proud of me.
+
 [def]: assets/Anggih.jpeg
 
 ## My Links
